@@ -1,2 +1,0 @@
-# bayamMandir
-f
